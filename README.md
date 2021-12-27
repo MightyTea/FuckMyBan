@@ -1,4 +1,4 @@
-# Game Unban Method
+# FuckMyBan - Game Unban Method
 <br>
 
 Download FuckMyBan Latest Version [here](https://cdn.discordapp.com/attachments/923952243089236028/925050510053097522/FuckMyBan.rar) <br />
